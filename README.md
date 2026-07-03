@@ -55,7 +55,7 @@
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/franclimndala/)
 - 🖥️ [GitHub](https://github.com/Franclimmm)
-- 📧 Email: f.ndala2557@student.leedsbeckett.ac.uk
+- 📧 Email: franclimndala@gmail.com
 
 ---
 
